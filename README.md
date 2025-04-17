@@ -1,4 +1,4 @@
-## Northwest Registered Agent Coupon 2025 | Get 60% Discount
+# Northwest Registered Agent Coupon 2025 | Get 60% Discount
 
 Get expert help to set up your LLC at a discounted price with Northwest Registered Agent.
 
